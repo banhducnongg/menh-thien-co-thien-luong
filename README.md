@@ -1,6 +1,4 @@
-Mệnh Thiên Cơ Thiên Lương | Cách cục trí tuệ, nhân đức và tài mưu lược
 
-Mệnh Thiên Cơ Thiên Lương biểu thị người có trí tuệ tinh tế, sống nhân nghĩa và biết dùng trí để hành thiện nhưng cần tiết chế lo nghĩ để giữ thân tâm an hòa.
 
 Mệnh Thiên Cơ Thiên Lương: Luận trí tuệ và đức hạnh cùng Tracuutuvi.com
 =======================================================================
@@ -21,21 +19,22 @@ Trong Tử Vi, Mệnh Thiên Cơ Thiên Lương là cách cục khi hai sao Thi�
 
 Khi hai sao này cùng hội tụ, mệnh chủ trở thành người “có trí mà có đức”, vừa biết ứng biến, vừa có tâm trong sáng. Họ sống có lý tưởng, làm việc có nguyên tắc và rất quan tâm đến đạo nghĩa. Đây là cách cục của bậc hiền triết, nhà quản lý giỏi, hoặc người có xu hướng hành thiện – giúp đời.
 
+![Thiên Cơ cung Mệnh chủ về người sáng suốt, có đầu óc phân tích tốt và dễ thích ứng](https://tracuutuvi.com/wp-content/uploads/2023/08/thien-co-cung-menh-1-1.jpg)
+
 Tướng mạo và phong thái của người có Mệnh Thiên Cơ Thiên Lương
 --------------------------------------------------------------
 
-Theo nhân tướng học, người mang Mệnh Thiên Cơ Thiên Lương có phong thái thanh cao, trí tuệ và điềm tĩnh:
+Theo nhân tướng học, người mang **[Mệnh trong tử vi](https://tracuutuvi.com/cung-menh.html)** Thiên Cơ Thiên Lương có phong thái thanh cao, trí tuệ và điềm tĩnh:
 
-*   Khuôn mặt sáng, trán rộng, ánh mắt thông minh và hiền hòa.
-    
-*   Nét mặt nghiêm nhưng không dữ, thể hiện sự minh triết và đạo đức.
-    
-*   Giọng nói nhẹ nhưng rõ ràng, thể hiện người có học thức và tự tin.
-    
-*   Dáng đi chậm, cử chỉ chừng mực, phong thái của bậc học giả hoặc người làm việc trí óc.
-    
+Khuôn mặt sáng, trán rộng, ánh mắt thông minh và hiền hòa.
 
-Họ thường gây ấn tượng không phải bởi ngoại hình nổi bật, mà bởi khí chất thanh khiết, trí tuệ và cách cư xử điềm đạm.
+Nét mặt nghiêm nhưng không dữ, thể hiện sự minh triết và đạo đức.
+
+Giọng nói nhẹ nhưng rõ ràng, thể hiện người có học thức và tự tin.
+
+Dáng đi chậm, cử chỉ chừng mực, phong thái của bậc học giả hoặc người làm việc trí óc.
+
+Họ thường gây ấn tượng không phải bởi ngoại hình nổi bật, mà bởi khí chất thanh khiết, trí tuệ và cách cư xử điềm đạm."
 
 Phẩm chất và tính cách của người có Mệnh Thiên Cơ Thiên Lương
 -------------------------------------------------------------
@@ -61,19 +60,16 @@ Người có Mệnh Thiên Cơ Thiên Lương không thích ồn ào, thường 
 Ảnh hưởng của Mệnh Thiên Cơ Thiên Lương đến các phương diện cuộc sống
 ---------------------------------------------------------------------
 
-### Công danh và sự nghiệp
-
-Người mang Mệnh Thiên Cơ Thiên Lương thường thành công trong các lĩnh vực cần tư duy chiến lược và đạo đức nghề nghiệp cao như giáo dục, y học, luật, nghiên cứu, quản trị hoặc công tác xã hội.
+Công danh và sự nghiệp  
+Người mang **[mệnh vô chính diệu đắc tam không là gì?](https://hackmd.io/@banhducnongg/menh-vo-chinh-dieu-dac-tam-khong)** Thiên Cơ Thiên Lương thường thành công trong các lĩnh vực cần tư duy chiến lược và đạo đức nghề nghiệp cao như giáo dục, y học, luật, nghiên cứu, quản trị hoặc công tác xã hội.
 
 Nếu gặp cát tinh như Thiên Khôi, Thiên Việt, Văn Xương, Văn Khúc, con đường công danh rộng mở, được người kính trọng, dễ thành danh. Tuy nhiên, nếu gặp sát tinh như Kình Dương, Đà La thì dễ vướng thị phi, cần giữ vững chính đạo.
 
-### Tài lộc
-
+Tài lộc  
 Thiên Cơ giúp mưu trí, còn Thiên Lương giúp giữ phúc, nên tài lộc của họ đến bằng công sức và trí tuệ, không phải ngẫu nhiên. Họ kiếm tiền nhờ nghề nghiệp ổn định, nhưng ít khi làm giàu nhanh. Càng làm việc thiện, phúc khí tài vận càng bền.
 
-### Tình cảm và gia đạo
-
-Trong tình cảm, họ nghiêm túc, chung thủy và luôn đặt đạo nghĩa lên trên cảm xúc. Đôi khi do quá nguyên tắc mà khó hòa hợp với người khác phóng khoáng hơn. Tuy nhiên, hôn nhân của họ thường ổn định, vợ chồng tôn trọng và nể trọng nhau.
+Tình cảm và gia đạo  
+Trong tình cảm, họ nghiêm túc, chung thủy và luôn đặt đạo nghĩa lên trên cảm xúc. Đôi khi do quá nguyên tắc mà khó hòa hợp với người khác phóng khoáng hơn. Tuy nhiên, hôn nhân của họ thường ổn định, vợ chồng tôn trọng và nể trọng nhau."
 
 ### Sức khỏe và tinh thần
 
@@ -95,6 +91,6 @@ Người có Mệnh Thiên Cơ Thiên Lương muốn đạt thành tựu trọn 
 *   **Chọn bạn đồng hành có năng lượng tích cực:** Gần người hiền lành giúp Thiên Lương củng cố phúc khí, tránh vướng thị phi.
     
 
-**Mệnh Thiên Cơ Thiên Lương** là biểu tượng của người vừa có trí tuệ, vừa có đức hạnh. Họ sống lương thiện, hành động có mục tiêu rõ ràng, trọng nghĩa hơn lợi và luôn nỗ lực hoàn thiện bản thân. Dù con đường không phải lúc nào cũng suôn sẻ, nhưng với tâm sáng và trí bền, họ dễ đạt danh tiếng và được người đời kính trọng.
+**[nữ mệnh tham lang](https://www.tumblr.com/giacattruongphong/800524608038158337/con-gai-menh-tham-lang-duyen-den-muon-phuc-den)** mang Mệnh Thiên Cơ Thiên Lương là biểu tượng của người vừa có trí tuệ, vừa có đức hạnh. Họ sống lương thiện, hành động có mục tiêu rõ ràng, trọng nghĩa hơn lợi và luôn nỗ lực hoàn thiện bản thân. Dù con đường không phải lúc nào cũng suôn sẻ, nhưng với tâm sáng và trí bền, họ dễ đạt danh tiếng và được người đời kính trọng."
 
 Để hiểu sâu hơn về Mệnh Thiên Cơ Thiên Lương là gì và các biến thể khi hai sao này hội chiếu ở các cung khác, mời bạn tra cứu chi tiết tại Tracuutuvi.com.
