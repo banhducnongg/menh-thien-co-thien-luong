@@ -91,6 +91,6 @@ Người có Mệnh Thiên Cơ Thiên Lương muốn đạt thành tựu trọn 
 *   **Chọn bạn đồng hành có năng lượng tích cực:** Gần người hiền lành giúp Thiên Lương củng cố phúc khí, tránh vướng thị phi.
     
 
-**[nữ mệnh tham lang](https://www.tumblr.com/manhauu/816370083987423232/tinh-cach-tinh-duyen-va-cuoc-doi-cua-con-gai-menh)** mang Mệnh Thiên Cơ Thiên Lương là biểu tượng của người vừa có trí tuệ, vừa có đức hạnh. Họ sống lương thiện, hành động có mục tiêu rõ ràng, trọng nghĩa hơn lợi và luôn nỗ lực hoàn thiện bản thân. Dù con đường không phải lúc nào cũng suôn sẻ, nhưng với tâm sáng và trí bền, họ dễ đạt danh tiếng và được người đời kính trọng."
+**[nữ mệnh tham lang](https://www.tumblr.com/banhchungi/816554318002044928/tinh-cach-tinh-duyen-va-cuoc-doi-cua-con-gai-menh)** mang Mệnh Thiên Cơ Thiên Lương là biểu tượng của người vừa có trí tuệ, vừa có đức hạnh. Họ sống lương thiện, hành động có mục tiêu rõ ràng, trọng nghĩa hơn lợi và luôn nỗ lực hoàn thiện bản thân. Dù con đường không phải lúc nào cũng suôn sẻ, nhưng với tâm sáng và trí bền, họ dễ đạt danh tiếng và được người đời kính trọng."
 
 Để hiểu sâu hơn về Mệnh Thiên Cơ Thiên Lương là gì và các biến thể khi hai sao này hội chiếu ở các cung khác, mời bạn tra cứu chi tiết tại Tracuutuvi.com.
